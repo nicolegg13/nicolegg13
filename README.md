@@ -10,7 +10,7 @@
 
 💬 15y
 
-💙 *Astronomia, conspiração, natureza, música*
+💙 *Astronomia, conspiração, natureza*
 
 
 
