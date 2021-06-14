@@ -1,16 +1,18 @@
-### Bom dia 👋
+### :trollface: Bom dia 👋
 
 > ![image](https://user-images.githubusercontent.com/85495959/121888530-80326080-ccee-11eb-95f0-e4f9bd88a373.png)
 
-🌱 Primeira vez aqui
+🌱 Primeira vez aqui :zipper_mouth_face:
 
-📫 CTISM - 2021
+:dart: Santa Maria RS :brazil:
 
-⚡ **I.N.F.O** maior e melhor
+:books: CTISM - 2021 
+
+⚡ **I.N.F.O** maior e melhor :gem:
 
 💬 15y
 
-💙 *Astronomia, conspiração, natureza*
+💙 *Astronomia, conspiração, natureza, viajar, humor* :ringed_planet:
 
 
 
