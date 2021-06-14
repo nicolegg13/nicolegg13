@@ -1,5 +1,20 @@
-### Hi there 👋
-bom dia
+### Bom dia 👋
+
+![image](https://user-images.githubusercontent.com/85495959/121888530-80326080-ccee-11eb-95f0-e4f9bd88a373.png)
+
+🌱 Primeira vez aqui
+
+📫 CTISM - 2021
+
+⚡ **I.N.F.O** maior e melhor
+
+💬 15y
+
+💙 *Astronomia, conspiração, natureza, música*
+
+
+
+
 
 <!--
 **nicolegg13/nicolegg13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
