@@ -18,6 +18,7 @@ meu momento vai chegar amém
 
 ###### *... so live a life you will remember* :rocket:
 
+__________________________________________________
 <!--
 **nicolegg13/nicolegg13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
