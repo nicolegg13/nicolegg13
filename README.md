@@ -4,7 +4,7 @@ meu momento vai chegar amém
 
 > ![image](https://user-images.githubusercontent.com/85495959/121888530-80326080-ccee-11eb-95f0-e4f9bd88a373.png)
 
-- `🌱` Primeira vez aqui :zipper_mouth_face:
+- :boom: Primeira vez aqui :snail:
 
 :dart: Santa Maria RS :brazil:
 
@@ -12,11 +12,11 @@ meu momento vai chegar amém
 
 ⚡ **I.N.F.O** maior e melhor :gem:
 
-💬 15y
+💬 15yr
 
-- 💙 *Astronomia, conspiração, natureza, viajar, humor* :ringed_planet:
+💙 *Astronomia, conspiração, natureza, viajar, piadas* :ringed_planet:
 
-
+###### *... so live a life you will remember* :rocket:
 
 <!--
 **nicolegg13/nicolegg13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
