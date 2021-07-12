@@ -14,7 +14,9 @@ meu momento vai chegar amém
 
 💬 15yr
 
-💙 *Astronomia, conspiração, natureza, viajar, piadas* :ringed_planet:
+:mailbox_with_mail: nicolegrazzioli@gmail.com
+
+💙 *Astronomia, natureza, viajar, veículos* :ringed_planet:
 
 ###### *... so live a life you will remember* :rocket:
 
