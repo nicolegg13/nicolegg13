@@ -6,17 +6,11 @@ meu momento vai chegar amém
 
 #### - :boom: Primeira vez aqui :snail:
 
-:dart: Santa Maria RS :brazil:
+:dart: CTISM - 2022 :brazil:
 
-:books: CTISM - 2021 
-
-⚡ **I.N.F.O** maior e melhor :gem:
-
-💬 15yr
+⚡ **I.n.f.o** maior e melhor 
 
 :mailbox_with_mail: nicolegrazzioli@gmail.com
-
-💙 *Astronomia, natureza, viajar, veículos* :ringed_planet:
 
 ###### *... so live a life you will remember* :rocket:
 
