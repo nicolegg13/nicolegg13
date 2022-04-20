@@ -1,10 +1,10 @@
-## :trollface: Bom dia 👋
+## :trollface: hey 👋
 
 meu momento vai chegar amém
 
 > ![image](https://user-images.githubusercontent.com/85495959/121888530-80326080-ccee-11eb-95f0-e4f9bd88a373.png)
 
-#### - :boom: Primeira vez aqui :snail:
+#### :boom: Primeira vez aqui :snail:
 
 :dart: CTISM - 2022 :brazil:
 
@@ -12,7 +12,9 @@ meu momento vai chegar amém
 
 :mailbox_with_mail: nicolegrazzioli@gmail.com
 
-###### *... so live a life you will remember* :rocket:
+##### 🚙 viajar é melhor que ir em festa 🏍️
+
+###### *... nothing happened* :rocket:
 
 __________________________________________________
 <!--
