@@ -8,11 +8,9 @@ meu momento vai chegar amém
 
 :dart: CTISM - 2022 :brazil:
 
-⚡ **I.n.f.o** maior e melhor 
+⚡ **Info** maior e melhor 
 
 :mailbox_with_mail: nicolegrazzioli@gmail.com
-
-##### 🚙 viajar é melhor que ir em festa 🏍️
 
 ###### *... nothing happened* :rocket:
 
