@@ -27,6 +27,7 @@ meu momento vai chegar amém
 - quase matei a gabs (sem meme literalmente) no meio do praça nova
 - moro em sm ha 16 anos e facilmente me perderia em qualquer lugar alem da rua da minha casa
 - ninguem liga pq os camaleoes mudam de cor caro amigo do spotify
+- muitas vezes por segundo eu acho q todo mundo me odeia e q to incomodando mas finjo normalidade p nao se jogar na sanga a cada surto psicotipo e existencial
 - ja escolhi minha casa carros motos piscina cachorros gatos lugar so falta a grana
 - criei tantas personalidades aleatorias esses ultimos anos q nem sei mais quem eh quem
 - da pra ver toda santa maria no morro de silveira mt foda
