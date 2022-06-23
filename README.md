@@ -25,6 +25,8 @@ meu momento vai chegar amém
 - adoro o video da * caindo sentada de skate mt bom
 - quase matei a gabs (sem meme literalmente) no meio do praça nova
 - moro em sm ha 16 anos e facilmente me perderia em qualquer lugar alem da rua da minha casa
+- ninguem liga pq os camaleoes mudam de cor caro amigo do spotify
+- ja escolhi minha casa carros motos piscina cachorros gatos lugar so falta a grana
 - acho q eh isso vlw flw bjs pra tua mae
 
 ###### *... nothing happened* :rocket:
