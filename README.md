@@ -27,13 +27,21 @@ meu momento vai chegar amém
 - quase matei a gabs (sem meme literalmente) no meio do praça nova
 - moro em sm ha 16 anos e facilmente me perderia em qualquer lugar alem da rua da minha casa
 - ninguem liga pq os camaleoes mudam de cor caro amigo do spotify
-- muitas vezes por segundo eu acho q todo mundo me odeia e q to incomodando mas finjo normalidade p nao se jogar na sanga a cada surto psicotipo e existencial
+- muitas vezes por segundo eu acho q todo mundo me odeia e q to incomodando mas finjo normalidade p nao se jogar na sanga a cada surto psicotipo 
 - ja escolhi minha casa carros motos piscina cachorros gatos lugar so falta a grana
 - criei tantas personalidades aleatorias esses ultimos anos q nem sei mais quem eh quem
 - da pra ver toda santa maria no morro de silveira mt foda
 - alias ir pro mato >>> cidade
 - capivara mostrando a linguinha!!!!
 - acho q eh isso vlw flw bjs pra tua mae
+
+```
+  how can we not talk about family
+  when family's all that we got?
+  everything I went through
+  you were standing there by my side
+  and now you gon' be with me for the last ride
+```
 
 ###### *... nothing happened* :rocket:
 entao ve a cobrinha ai e para de perder tempo
