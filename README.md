@@ -2,8 +2,7 @@
 
 meu momento vai chegar amém
 
-> ![image](https://user-images.githubusercontent.com/85495959/121888530-80326080-ccee-11eb-95f0-e4f9bd88a373.png)
-> ![espelho](https://user-images.githubusercontent.com/85495959/175182950-987107c5-f546-49a9-88cc-6ee449f61a90.jpg)
+![Screenshot_2](https://user-images.githubusercontent.com/85495959/175183368-84dffe8b-780d-4359-a37a-f5059d00b495.jpg)
 
 #### :boom: Primeira vez aqui :snail:
 
