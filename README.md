@@ -12,7 +12,8 @@ meu momento vai chegar amém
 
 :mailbox_with_mail: nicolegrazzioli@gmail.com
 
-:boom: pra preencher espaço e fingir q isso eh um perfil profissional (nao sei de quem) e bonito :boom:
+=======================================
+#### :boom: Pra preencher espaço e fingir q isso eh um perfil profissional (nao sei de quem) e bonito :boom:
 - olha foi mal a decepção mas eu nao faço ideia do q escrever aqui, finge q eh algo interessante blz
 - tá, eu queria estar viajando pelo mundo só com uma mochila e alguns amigos era so isso (tem uns carros e coisa ai no meio mas de principal eh isso)
 - tenho 3 cachorros mas 2 nao sao meus mas isso eh um detalhe ok
@@ -29,6 +30,7 @@ meu momento vai chegar amém
 - ja escolhi minha casa carros motos piscina cachorros gatos lugar so falta a grana
 - criei tantas personalidades aleatorias esses ultimos anos q nem sei mais quem eh quem
 - da pra ver toda santa maria no morro de silveira mt foda
+- alias ir pro mato >>> cidade
 - capivara mostrando a linguinha!!!!
 - acho q eh isso vlw flw bjs pra tua mae
 
