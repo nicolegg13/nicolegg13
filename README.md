@@ -12,21 +12,23 @@ meu momento vai chegar amém
 
 :mailbox_with_mail: nicolegrazzioli@gmail.com
 
+:boom: pra preencher espaço e fingir q isso eh um perfil profissional (nao sei de quem) e bonito :boom:
+- olha foi mal a decepção mas eu nao faço ideia do q escrever aqui, finge q eh algo interessante blz
+- tá, eu queria estar viajando pelo mundo só com uma mochila e alguns amigos era so isso (tem uns carros e coisa ai no meio mas de principal eh isso)
+- tenho 3 cachorros mas 2 nao sao meus mas isso eh um detalhe ok
+- meu presente de 15 anos foi aprender a digirir e amo pra [hashtag][asterisco][emoji][katiau] isso 
+- queria ter um furão
+- nao sei oq to fazendo na vida
+- como fazer pão com queijo: pegua 2 fatias de pao coloca queijo no meio, fecha e da pra mim
+- tenho um pijamao de ursinho
+- nova musica favorita a cada 2,37 dias
+- adoro o video da * caindo sentada de skate mt bom
+- quase matei a gabs (sem meme literalmente) no meio do praça nova
+- moro em sm ha 16 anos e facilmente me perderia em qualquer lugar alem da rua da minha casa
+- acho q eh isso vlw flw bjs pra tua mae
+
 ###### *... nothing happened* :rocket:
+entao ve a cobrinha ai e para de perder tempo
 
 ![Snake animation](https://github.com/nicolegg13/nicolegg13/blob/output/github-contribution-grid-snake.svg)
-__________________________________________________
-<!--
-**nicolegg13/nicolegg13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
