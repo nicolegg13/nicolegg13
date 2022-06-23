@@ -3,7 +3,7 @@
 meu momento vai chegar amém
 
 > ![image](https://user-images.githubusercontent.com/85495959/121888530-80326080-ccee-11eb-95f0-e4f9bd88a373.png)
-> ![image](file:///C:/Users/Cliente/Downloads/espelho-de-mesa-jolie-dupla-face-10301.webp)
+> ![espelho](https://user-images.githubusercontent.com/85495959/175182950-987107c5-f546-49a9-88cc-6ee449f61a90.jpg)
 
 #### :boom: Primeira vez aqui :snail:
 
