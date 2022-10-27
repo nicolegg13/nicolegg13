@@ -13,17 +13,12 @@ meu momento vai chegar amém
 :mailbox_with_mail: nicolegrazzioli@gmail.com
 
 =======================================
-#### :boom: Pra preencher espaço e fingir q isso eh um perfil profissional (nao sei de quem) e bonito :boom:
+#### :boom: Pra preencher espaço e fingir q isso eh um perfil profissional e bonito :boom:
 - olha foi mal a decepção mas eu nao faço ideia do q escrever aqui, finge q eh algo interessante blz
 - tá, eu queria estar viajando pelo mundo só com uma mochila e alguns amigos era so isso 
-- tenho 3 cachorros mas 2 nao sao meus mas isso eh um detalhe ok
-- meu presente de 15 anos foi aprender a digirir #cascudoomaior
 - queria ter um furão
 - nao sei oq to fazendo na vida
-- tenho um pijamao de urso
-- nova musica favorita a cada 2,37 dias
-- adoro o video da * caindo sentada de skate mt bom
-- quase matei a gabs (sem meme literalmente) no meio do praça nova
+- quase matei a gabs (sem meme) no meio do praça nova
 - moro em sm ha 16 anos e facilmente me perderia em qualquer lugar alem da rua da minha casa
 - ninguem liga pq os camaleoes mudam de cor caro amigo do spotify
 - muitas vezes por segundo eu acho q todo mundo me odeia e q to incomodando mas finjo normalidade p nao se jogar na sanga a cada surto psicotipo 
