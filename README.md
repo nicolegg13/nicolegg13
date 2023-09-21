@@ -9,21 +9,6 @@ meu momento vai chegar amém
 :mailbox_with_mail: nicolegrazzioli@gmail.com
 
 =======================================
-#### :boom: Pra preencher espaço e fingir q isso eh um perfil profissional e bonito :boom:
-- olha foi mal a decepção mas eu nao faço ideia do q escrever aqui, finge q eh algo interessante blz
-- tá, eu queria estar viajando pelo mundo só com uma mochila e alguns amigos era so isso 
-- queria ter um furão
-- nao sei oq to fazendo na vida
-- quase matei a gabs (sem meme) no meio do praça nova
-- moro em sm ha 16 anos e facilmente me perderia em qualquer lugar alem da rua da minha casa
-- ninguem liga pq os camaleoes mudam de cor caro amigo do spotify
-- muitas vezes por segundo eu acho q todo mundo me odeia e q to incomodando mas finjo normalidade p nao se jogar na sanga a cada surto psicotipo 
-- criei tantas personalidades aleatorias esses ultimos anos q nem sei mais quem eh quem
-- da pra ver toda santa maria no morro de silveira mt foda
-- alias ir pro mato >>> cidade
-- capivara mostrando a linguinha!!!!
-- acho q eh isso vlw flw bjs pra tua mae
-
 ```
   how can we not talk about family
   when family's all that we got?
