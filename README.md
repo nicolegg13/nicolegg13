@@ -4,11 +4,7 @@ meu momento vai chegar amém
 
 ![Screenshot_2](https://user-images.githubusercontent.com/85495959/175183368-84dffe8b-780d-4359-a37a-f5059d00b495.jpg)
 
-#### :boom: Primeira vez aqui :snail:
-
-:dart: CTISM - 2022 :brazil:
-
-⚡ **Info** maior e melhor 
+:dart: CTISM - 2023 :brazil:
 
 :mailbox_with_mail: nicolegrazzioli@gmail.com
 
