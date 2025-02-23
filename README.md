@@ -1,10 +1,8 @@
 ## :trollface: hey 👋
 
-meu momento vai chegar amém
-
 ![Screenshot_2](https://user-images.githubusercontent.com/85495959/175183368-84dffe8b-780d-4359-a37a-f5059d00b495.jpg)
 
-:dart: CTISM - 2023 :brazil:
+:brazil:
 
 :mailbox_with_mail: nicolegrazzioli@gmail.com
 
@@ -16,9 +14,6 @@ meu momento vai chegar amém
   you were standing there by my side
   and now you gon' be with me for the last ride
 ```
-
-###### *... nothing happened* :rocket:
-entao ve a cobrinha ai e para de perder tempo
 
 ![Snake animation](https://github.com/nicolegg13/nicolegg13/blob/output/github-contribution-grid-snake.svg)
 
