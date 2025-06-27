@@ -1,10 +1,8 @@
-## :trollface: hey 👋
-
 ![Screenshot_2](https://user-images.githubusercontent.com/85495959/175183368-84dffe8b-780d-4359-a37a-f5059d00b495.jpg)
 
-:brazil:
+:brazil: spi - ufsm
 
-:mailbox_with_mail: nicolegrazzioli@gmail.com
+:mailbox_with_mail: nicole.grazzioli@acad.ufsm.br | nicolegrazzioli@gmail.com
 
 =======================================
 ```
