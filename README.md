@@ -4,11 +4,7 @@
 
 :pencil2: Sistemas para Internet - UFSM (1/2024 - )
 
-:small_blue_diamond: Java, SQL, C, React + Figma
-
 :pencil2: CS50x 2025
-
-:sparkles: projetos pessoais e trabalhos da ufsm
 
 :mailbox_with_mail: nicole.grazzioli@acad.ufsm.br | nicolegrazzioli@gmail.com
 
